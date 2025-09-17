@@ -2,7 +2,7 @@
 
 Hey, what's up?
 
-My nick is JotaCe. I do tech stuffs since like system admin and creating softwares.
+My nick is JotaCe. I do tech stuffs like system admin and creating softwares.
 
 Interested in:
 
